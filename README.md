@@ -9,7 +9,7 @@
 ![](https://github.com/bachtiar09/roject-Based-Virtual-Intern-DataScientist-ID-x-Partners/blob/main/FinalTask_IDx%20Partner_Abie%20bachtiar/Slide8.PNG)
 ![](https://github.com/bachtiar09/roject-Based-Virtual-Intern-DataScientist-ID-x-Partners/blob/main/FinalTask_IDx%20Partner_Abie%20bachtiar/Slide9.PNG)
 ![](https://github.com/bachtiar09/roject-Based-Virtual-Intern-DataScientist-ID-x-Partners/blob/main/FinalTask_IDx%20Partner_Abie%20bachtiar/Slide10.PNG)
-![][(https://github.com/bachtiar09/roject-Based-Virtual-Intern-DataScientist-ID-x-Partners/blob/main/FinalTask_IDx%20Partner_Abie%20bachtiar/Slide11.PNG)
+![](https://github.com/bachtiar09/roject-Based-Virtual-Intern-DataScientist-ID-x-Partners/blob/main/FinalTask_IDx%20Partner_Abie%20bachtiar/Slide11.PNG)
 ![](https://github.com/bachtiar09/roject-Based-Virtual-Intern-DataScientist-ID-x-Partners/blob/main/FinalTask_IDx%20Partner_Abie%20bachtiar/Slide12.PNG)
 ![](https://github.com/bachtiar09/roject-Based-Virtual-Intern-DataScientist-ID-x-Partners/blob/main/FinalTask_IDx%20Partner_Abie%20bachtiar/Slide13.PNG)
 ![](https://github.com/bachtiar09/roject-Based-Virtual-Intern-DataScientist-ID-x-Partners/blob/main/FinalTask_IDx%20Partner_Abie%20bachtiar/Slide14.PNG)
